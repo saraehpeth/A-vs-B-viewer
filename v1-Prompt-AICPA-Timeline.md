@@ -1,0 +1,1 @@
+> i'm a CPA & will be giving a seminar on AI to our firm. we have about 15 partners and 15 staff accountants (plus about 15 other staff). i'm thinking about AICPA guidance, lobbying efforts & other messaging on AI, and how they may have changed from 2023 to today. Will you please assemble some source material in a timeline format for me to review?
